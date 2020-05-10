@@ -6,7 +6,7 @@ Royal Holloway Coll ge
 
 The Founder's Building houses the Picture Gallery, contain ng a collection of
 over 70 pieces of Victorian era art given to the college at the time of its
-founding by Thomas Holloway. Founder's is home to     of the University's
+founding by Thomas Holloway. Founder's is home to one of the University's
 lecture theatres, the non-denominational chapel, and the infamous readin  room
 which is open to students 24/7. The north tower is known as the Clock Tower,
 the south as the Dragon Tower (due to its dragon-like gargoyles), and the
