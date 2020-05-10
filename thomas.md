@@ -1,4 +1,4 @@
-Found r's Building
+Founder's Building
 ==================
 
 Royal Holloway College
@@ -21,8 +21,8 @@ main administrative offices remain within the Founder's Building. It  s also a
 Hall of Residence for the campus, with rooms for over 550 students. A bar
 within the building is named "Crosslands" in honour of its architect.
 
-The or  inal building plans as well as photographs at the time of completion
-are available for viewing in the Royal  olloway archives loca ed in Founder's.
+The original building plans as well as photographs at the time of completion
+are available for viewing in the Royal Holloway archives located in Founder's.
 
 ---
 
