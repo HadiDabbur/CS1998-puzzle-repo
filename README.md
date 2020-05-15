@@ -15,3 +15,4 @@ The text here is from Wikipedia:
 [Founder's building](https://en.wikipedia.org/wiki/Founder%27s_Building)
 CC BY-SA 3.0.
 
+[![Run on Repl.it](https://repl.it/badge/github/HadiDabbur/CS1998-puzzle-repo)](https://repl.it/github/HadiDabbur/CS1998-puzzle-repo)
